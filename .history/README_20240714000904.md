@@ -1,0 +1,16 @@
+# Sereis Como Deuses
+
+## O STF e a subversão da Justiça
+
+A soberania nacional está em risco se não é o povo que decide o destino da nação.
+
+A ordem política e o regime democrático representativo não sub-sistem sem soberania popular exercida pelo sufrágio universal,direto e orientado pelo escrutínio público. A cláusula do exercí-cio secreto do voto não repele a também pétrea cláusula do voto direto, nem mesmo o escrutínio público imposto pelo princípio da publicidade. Ao invés de orgulhar-se da roupa nova prodi-giosa, o povo brasileiro deveria envergonhar-se da nudez de sua cidadania, imposta pelo arbítrio do serviço eleitoral. Orgulhosas devem ser as nações que podem contar e recontar seus votos em escrutínio público. Não por acaso que, apesar de dominarem a tecnologia de ponta, fazem prova física do voto.
+
+CAPÍTULO 4
+URNA VIRTUAL: A ROUPA NOVA DO REI
+Felipe M. Gimènez
+A ROUPA NOVA DO REI
+
+ - [inquerito_do_fim_do_mundo](https://github.com/araguaci/o-apagar-das-luzes/blob/main/static/pdf/web/a-subversao-da-justica.pdf)
+
+;-)
